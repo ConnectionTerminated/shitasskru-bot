@@ -1,0 +1,1 @@
+# shitasskru-bot
